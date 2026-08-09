@@ -6,4 +6,4 @@
 
 ㅤㅤ❓ : he / any / ask ㅤ 💣 ㅤ minor ( 16 ) ㅤ darkshippers DNI   ︵ 🔥 ㅤ english only .
 
-ㅤㅤㅤㅤㅤㅤ[pavitr](https://intothespiderverse.fandom.com/wiki/Pavitr_Prabhakar) kisserㅤ ( soulbond ) 💢 ( super selective , please iwec ^_^;; ) 🔆
+ㅤㅤㅤㅤ ,,ㅤ[pavitr](https://intothespiderverse.fandom.com/wiki/Pavitr_Prabhakar) kisser ( soulbond ) 💢 ( super selective , please iwec ^_^;; )ㅤ🔆
